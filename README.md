@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **brogniez.romain@yahoo.com**
 
-- ⚡ Fun fact **I look like Mister MV**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
